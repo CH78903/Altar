@@ -1,0 +1,2 @@
+# Altar
+Altar de muertos 
